@@ -1,0 +1,1 @@
+This is a demo portfolio and i will be making changes from time to time to make the site look cooler and better.
